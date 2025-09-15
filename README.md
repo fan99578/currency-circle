@@ -4,7 +4,7 @@
 
 ### 1⃣ 币安（Binance）
 
-- 注册链接（免翻墙）：[👉 点击注册](https://www.maxweb.ac/zh-CN/join?ref=368633857)
+- 注册链接（免翻墙）：[👉 点击注册](https://www.maxweb.systems/zh-CN/join?ref=368633857)
 - 注册链接（需翻墙）：[👉 点击注册](https://www.binance.com/zh-CN/join?ref=368633857)
 - 亮点：全球排名第一的交易所，用户最多，交易深度最好，币圈首选，人人必备。
 
