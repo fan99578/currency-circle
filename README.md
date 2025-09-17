@@ -15,13 +15,13 @@
 
 ### 3⃣  OKX （欧意）
 
-- 注册链接（免翻墙）：[👉 点击注册](https://ouxyi.io/ul/YbU25D?channelId=12253677)
+- 注册链接（免翻墙）：[👉 点击注册](https://www.hnzhcf.com/join/12253677)
 - 注册链接（需翻墙）：[👉 点击注册](https://okx.com/join/12253677)
 - 亮点：全球顶尖交易所，web3钱包行业最优、交易更快，收益更高，安全有保障
 
 ### 4⃣ Bybit
 
-- 注册链接：[👉 点击注册](https://partner.bybit.cloud/b/117673)
+- 注册链接：[👉 点击注册](https://partner.lovebybit.com/b/117673)
 - 亮点：海外热门交易平台，空投力度大
 
 ### 5⃣ Bitget
