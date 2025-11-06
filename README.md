@@ -10,7 +10,7 @@
 
 ### 2⃣ [Gate.io](http://gate.io/)（芝麻开门）
 
-- 注册链接：[👉 点击注册](https://www.gate.com/share/JYDKMXVX)
+- 注册链接：[👉 点击注册](https://www.gatewebsite.com/share/MLHGUQUA)
 - 亮点：老牌交易所，山寨币数量最多，活动丰富，空投多、适合埋伏新币。
 
 ### 3⃣  OKX （欧意）
