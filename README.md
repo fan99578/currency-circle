@@ -4,14 +4,14 @@
 
 ### 1⃣ 币安（Binance）
 
-- 注册链接（免翻墙）：[👉 点击注册]( https://www.bmwweb.ac/zh-CN/join?ref=368633857)
+- 注册链接（免翻墙）：[👉 点击注册](https://www.bsmkweb.cc/zh-CN/join?ref=368633857)
 - 注册链接（需翻墙）：[👉 点击注册](https://www.binance.com/zh-CN/join?ref=368633857)
 - 亮点：全球排名第一的交易所，用户最多，交易深度最好，币圈首选，人人必备。
 
 
 ### 2⃣  OKX （欧意）
 
-- 注册链接（免翻墙）：[👉 点击注册](https://www.jingshieng.org/join/12253677)
+- 注册链接（免翻墙）：[👉 点击注册](https://www.nqfaonrusoa.com/join/12253677)
 - 注册链接（需翻墙）：[👉 点击注册](https://okx.com/join/12253677)
 - 亮点：全球顶尖交易所，web3钱包行业最优、交易更快，收益更高，安全有保障 
 
